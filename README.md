@@ -1,0 +1,4 @@
+- 👋 Hi, I’m @LegendCZE
+- 👀 I’m interested in Programming
+- 🌱 I’m currently learning Programming
+- 📫 How to reach me discord: Legend_CZ#7711
